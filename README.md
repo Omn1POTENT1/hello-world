@@ -1,2 +1,4 @@
 # hello-world
-can be a place where you store ideas, resources, or even share and discuss things with others.
+I'M OMNI
+i enjoy wrestling with pythons and sipping my java
+I'M POTENT
